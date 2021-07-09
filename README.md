@@ -1,1 +1,25 @@
-# Prediction_using_Supervised_ML
+# Prediction_using_Supervised_ML | The Sparks Foundation | Data Science & Business Analytics intern | #GRIPJULY21 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
